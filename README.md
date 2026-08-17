@@ -14,6 +14,8 @@ barry or mjay if yall are reading this we should kiss <img width="20" height="20
 
 <img width="564" height="564" alt="image" src="https://github.com/user-attachments/assets/0d64135c-4a8d-48cd-92eb-5cd81447d556" />
 
+
+
 <img width="237" height="192" alt="image" src="https://github.com/user-attachments/assets/c01cdb56-4c92-420e-9fee-71b7ac11e7a9" />
 
 US AND BBG 
