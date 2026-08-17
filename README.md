@@ -7,4 +7,4 @@ idk what to put here
 C+H freely (encouraged for cosplayers of the same fandom and systems...)
 
 UDD SYSTEM
-**DO NOT INTERACT UNEDUCATED**
+!**DO NOT INTERACT UNEDUCATED**!
