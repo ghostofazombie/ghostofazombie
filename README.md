@@ -8,3 +8,7 @@ C+H freely (encouraged for cosplayers of the same fandom and systems...)
 
 UDD SYSTEM
 !**DO NOT INTERACT UNEDUCATED**!
+
+taken, mjay :3
+
+barry or mjay if yall are reading this we should kiss
